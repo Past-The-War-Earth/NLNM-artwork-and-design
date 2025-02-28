@@ -1,1 +1,1 @@
-Art work for combatants, armor and weaponry from USA by Artem V. Shamsutdinov
+Art work for combatants, armor and weaponry from the United States of America by Artem V. Shamsutdinov
